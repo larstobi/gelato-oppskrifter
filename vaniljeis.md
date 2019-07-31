@@ -3,10 +3,10 @@ Vaniljeis (som ikke trenger varming)
 
 Produserer ca. 1100 ml røre.
 
-* 5 dl H-melk
-* 5 dl Kremfløte
-* 100g sukker
-* 1 vaniljestang eller 1 ts vaniljesukker
+* 7 dl H-melk
+* 2.5 dl Matfløte
+* 60g sukker (inkludert eventuelt 2 ts vaniljesukker)
+* 1 vaniljestang
 
 Enklest
 -------
