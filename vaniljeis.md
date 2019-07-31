@@ -1,7 +1,7 @@
 Vaniljeis (som ikke trenger varming)
 ====================================
 
-==Produserer ca. 1100 ml røre.==
+Produserer ca. 1100 ml røre.
 
 * 5 dl H-melk
 * 5 dl Kremfløte
